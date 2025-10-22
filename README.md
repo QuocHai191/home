@@ -1,2 +1,0 @@
-# home
-# Nguyen Quoc Hai
